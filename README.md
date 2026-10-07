@@ -1,1 +1,1 @@
-# colaboradores_do_projeo_IA2030
+# colaboradores_do_projeto_IA2030
